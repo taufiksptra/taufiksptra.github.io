@@ -1,1 +1,0 @@
-# taufiksptra.github.io
